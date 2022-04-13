@@ -1,2 +1,2 @@
-# SC-BOT-WA
-Subscribe Channel Hanbu FF
+# የ-ል-ረ
+Dukung terus RRY BOTZ
